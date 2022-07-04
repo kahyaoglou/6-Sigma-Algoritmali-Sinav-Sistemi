@@ -1,0 +1,1 @@
+# 6-Sigma-Algoritmali-Sinav-Sistemi
